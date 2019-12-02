@@ -1,0 +1,1 @@
+# gyouzatako.github.io
